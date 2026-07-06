@@ -1,4 +1,4 @@
-# 
+# Exclusif meme coin sniper bot flux de travail pour Mac OS | Sécurisé meme coin sniper bot flux de travail pour PC Windows. Avec détection de sandwich et tests de simulation — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
